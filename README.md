@@ -7,3 +7,5 @@
 * [赵晓：大哥文化与大道文明（视频）](https://www.asuswebstorage.com/navigate/a/#/s/067524C913EF45F48D76F8D3FCBE4064Y)
 
 * [推荐视频：大哥文化与大哥商业观影（视频）](https://www.asuswebstorage.com/navigate/a/#/s/88808FBC7BE049C3A27ACAA8DFD88F8FY)
+
+* [赵晓：智者凯波尔（视频）](https://www.asuswebstorage.com/navigate/a/#/s/A6D3248A164944419E52EF36B6A6FB8BY)
