@@ -1,5 +1,7 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 
+* [赵晓：圣约中的父亲与儿女（视频）](https://www.asuswebstorage.com/navigate/a/#/s/745EE080A6994121A49C7E0174EF2A71Y)
+
 * [赵晓：也谈黑社会为什么不能管理高科技？（视频）](https://www.asuswebstorage.com/navigate/a/#/s/B09658BB5EB5420BA178D521BFFA6B59Y)
 
 * [赵晓：IPEF：知向谁边？（视频）](https://www.asuswebstorage.com/navigate/a/#/s/57EF6556BCCB495F9071A4F23F65BF18Y)
