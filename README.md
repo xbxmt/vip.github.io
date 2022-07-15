@@ -2,6 +2,8 @@
 <br>
 <br>
 
+* [赵晓：忍者安倍](https://www.asuswebstorage.com/navigate/a/#/s/C92AF4ED83134BF5839F99DBF0894B91Y)
+------------------------------------------------------
 * [赵晓：生命经济学之人生可能](https://www.asuswebstorage.com/navigate/a/#/s/8B49A40C98624E189DE69F255EADAC0CY)
 ------------------------------------------------------
 * [赵晓：人是铁饭是钢](https://www.asuswebstorage.com/navigate/a/#/s/405F7C6C5181454D9598FD33C9D63007Y)
