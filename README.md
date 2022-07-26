@@ -1,6 +1,8 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 <br>
 <br>
+* [赵晓：从安倍谈仆人领导力](https://www.asuswebstorage.com/navigate/a/#/s/1712EC3D53724BA7B05FB50B4BEEBA35Y)
+------------------------------------------------------
 * [赵晓：烂尾楼危机](https://www.asuswebstorage.com/navigate/a/#/s/40C6287AC4654FFF9EBC3643D2D6DDC7Y)
 ------------------------------------------------------
 * [赵晓：忍者安倍](https://www.asuswebstorage.com/navigate/a/#/s/C92AF4ED83134BF5839F99DBF0894B91Y)
