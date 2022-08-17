@@ -31,3 +31,5 @@
 ------------------------------------------------------
 * [推荐视频：大哥文化与大哥商业观影](https://www.asuswebstorage.com/navigate/a/#/s/88808FBC7BE049C3A27ACAA8DFD88F8FY)
 ------------------------------------------------------
+* [赵晓：犹太商人与新教商人背后是什么？](https://www.asuswebstorage.com/navigate/a/#/s/AAE825B6D1C049C5855FEAEE83707B31Y)
+* [赵晓：中国儒商背后的“天道文明”](https://www.asuswebstorage.com/navigate/a/#/s/8EBFA9900FA24C0BAB6B1E10805E9CFDY)
