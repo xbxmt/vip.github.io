@@ -37,5 +37,19 @@
 ------------------------------------------------------
 * [推荐视频：大哥文化与大哥商业观影](https://www.asuswebstorage.com/navigate/a/#/s/88808FBC7BE049C3A27ACAA8DFD88F8FY)
 ------------------------------------------------------
+* [推赵晓：最后一代](https://www.asuswebstorage.com/navigate/a/#/s/02CD574092B744E899914E27B01939ECY)
+------------------------------------------------------
+* [赵晓：抗疫经济](https://www.asuswebstorage.com/navigate/a/#/s/52CFC9A66AD24934929A8C5F249F0FC2Y)
+------------------------------------------------------
+* [赵晓：统一大市场](https://www.asuswebstorage.com/navigate/a/#/s/127EA8378D8D44E7AE021EB0A4D5AFC3Y)
+------------------------------------------------------
+* [赵晓：经济学不相信阴谋论](https://www.asuswebstorage.com/navigate/a/#/s/490E02EB2AAA415EA06F51166ECA303FY)
+------------------------------------------------------
+* [赵晓：“东正教徒普京”与第三类偶像崇拜](https://www.asuswebstorage.com/navigate/a/#/s/88E6AFF897F54272B2876F7EE058CEC9Y)
+------------------------------------------------------
+* [赵晓：普京的 A 面、B 面和全面](https://www.asuswebstorage.com/navigate/a/#/s/7F1F108F76E84548ABD2B34DC57CB0C6Y)
+------------------------------------------------------
+* [赵晓：战争经济学](https://www.asuswebstorage.com/navigate/a/#/s/82BE5E113E8A4B7480AE1614D9EF72C0Y)
+------------------------------------------------------
 * [赵晓：犹太商人与新教商人背后是什么？](https://www.asuswebstorage.com/navigate/a/#/s/AAE825B6D1C049C5855FEAEE83707B31Y)
 * [赵晓：中国儒商背后的“天道文明”](https://www.asuswebstorage.com/navigate/a/#/s/8EBFA9900FA24C0BAB6B1E10805E9CFDY)
