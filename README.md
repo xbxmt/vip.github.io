@@ -1,6 +1,8 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 <br>
 <br>
+* [赵晓：度过严酷人生的秘诀](https://www.asuswebstorage.com/navigate/a/#/s/6FDB65B99F444F1DABAD39D9B2AAB4D5Y)
+------------------------------------------------------
 * [赵晓：经济学看贫穷](https://www.asuswebstorage.com/navigate/a/#/s/2191D4CE602949D599E5D20730D1F776Y)
 ------------------------------------------------------
 * [赵晓：润学解析](https://www.asuswebstorage.com/navigate/a/#/s/0C1FDD5C42CC4A20A64D25C318A16BD7Y)
