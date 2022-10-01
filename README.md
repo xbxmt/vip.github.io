@@ -1,6 +1,8 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 <br>
 <br>
+* [赵晓：阿摩司从职场到先知](https://www.asuswebstorage.com/navigate/a/#/s/29ADB53CD2F445ABA50E2049430E2322Y)
+------------------------------------------------------
 * [赵晓：也谈战争与产业](https://www.asuswebstorage.com/navigate/a/#/s/4C0BB6FD45F44FB5B4B3D5142FB11F2FY)
 ------------------------------------------------------
 * [赵晓：英女王与英语民族](https://www.asuswebstorage.com/navigate/a/#/s/7FD8402EE1D444BB988769B187E29DEAY)
