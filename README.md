@@ -1,6 +1,8 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 <br>
 <br>
+* [赵晓：“诺贝尔奖”离咱有多远？](https://www.asuswebstorage.com/navigate/a/#/s/4950D2CD02E74990B6DD182D9CCC95F0Y)
+------------------------------------------------------
 * [赵晓：人民经济](https://www.asuswebstorage.com/navigate/a/#/s/382F66A339144D1AA76DDA404573E461Y)
 ------------------------------------------------------
 * [赵晓：阿摩司从职场到先知](https://www.asuswebstorage.com/navigate/a/#/s/29ADB53CD2F445ABA50E2049430E2322Y)
