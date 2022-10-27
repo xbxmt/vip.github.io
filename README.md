@@ -1,6 +1,8 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 <br>
 <br>
+* [赵晓：为风暴做好准备](https://www.asuswebstorage.com/navigate/a/#/s/160018E0C7C146489864C5618DAB21DEY)
+------------------------------------------------------
 * [赵晓：直升机上撒钞票-2022经济学诺奖智慧](https://www.asuswebstorage.com/navigate/a/#/s/B39ECD0049FC4CBC81CE04CBB6F2AFFDY)
 ------------------------------------------------------
 * [赵晓：“诺贝尔奖”离咱有多远？](https://www.asuswebstorage.com/navigate/a/#/s/4950D2CD02E74990B6DD182D9CCC95F0Y)
