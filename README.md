@@ -1,6 +1,8 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 <br>
 <br>
+* [赵晓：功夫在“吃”外](https://www.asuswebstorage.com/navigate/a/#/s/01E1AEB1BBE14611A46544B1FDEB0BBBY)
+------------------------------------------------------
 * [赵晓：我们不曾试过甚至听过的](https://www.asuswebstorage.com/navigate/a/#/s/18438AAF8699439C8E475D9ABCCCF1B1Y)
 ------------------------------------------------------
 * [赵晓：为风暴做好准备](https://www.asuswebstorage.com/navigate/a/#/s/160018E0C7C146489864C5618DAB21DEY)
