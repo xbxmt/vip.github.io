@@ -2,7 +2,7 @@
 <br>
 <br>
 
-* [赵晓：房子、经济、软肋](https://pub-49fa42ca676241cca9bfa606e8374bf5.r2.dev/2022/12/笃笃赵晓：房子、经济、软肋_x264.mp4)
+* [赵晓：房子、经济、软肋](https://www.asuswebstorage.com/navigate/a/#/s/F4ABACA1B6DE4FABAF304CE07328E67CY)
 ------------------------------------------------------
 * [赵晓：亚当斯密人性与经济](https://www.asuswebstorage.com/navigate/a/#/s/EA626FCEF3B5479280C29BAEBA8E2FD9Y)
 ------------------------------------------------------
