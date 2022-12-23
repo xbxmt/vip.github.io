@@ -1,7 +1,7 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 <br>
 <br>
-* [赵晓：理、势、道：经济盘点.mp4](https://www.asuswebstorage.com/navigate/a/#/s/935B65857EC044FDA045B78F647BB6D1Y)
+* [赵晓：理、势、道：经济盘点](https://www.asuswebstorage.com/navigate/a/#/s/935B65857EC044FDA045B78F647BB6D1Y)
 ------------------------------------------------------
 * [赵晓：从启示看自由](https://www.asuswebstorage.com/navigate/a/#/s/F16FB1DA78874938BCF8C13A26C7ADE8Y)   　　　* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/A65582D7F1854611A59C3ABC7D32AB99Y) 
 ------------------------------------------------------
