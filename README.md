@@ -96,5 +96,7 @@
 ------------------------------------------------------
 * [赵晓：战争经济学](https://www.asuswebstorage.com/navigate/a/#/s/82BE5E113E8A4B7480AE1614D9EF72C0Y)
 ------------------------------------------------------
+* [赵晓：公民凯尔](https://www.asuswebstorage.com/navigate/a/#/s/F47DED258F2146ACBD0A9BDA1A84D867Y)
+------------------------------------------------------
 * [赵晓：犹太商人与新教商人背后是什么？](https://www.asuswebstorage.com/navigate/a/#/s/AAE825B6D1C049C5855FEAEE83707B31Y)
 * [赵晓：中国儒商背后的“天道文明”](https://www.asuswebstorage.com/navigate/a/#/s/8EBFA9900FA24C0BAB6B1E10805E9CFDY)
