@@ -1,6 +1,9 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 <br>
 <br>
+
+* [赵晓：神就是爱但爱不是神](https://www.asuswebstorage.com/navigate/a/#/s/B9DB224A8C6648BF84CE62705C6D2C30Y)
+------------------------------------------------------
 * [赵晓：生日-人生几何](https://www.asuswebstorage.com/navigate/a/#/s/49C4B0DB83E54D9D84A4337A6FE9F515Y) 　　　* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/38F989176A094126BAD8CF0B844FC9D1Y)
 ------------------------------------------------------
 * [赵晓：金融风暴](https://www.asuswebstorage.com/navigate/a/#/s/4B806FA3755C474B967ED800E6C7E4DEY) 　　　* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/436D91F0EDDE4487B8C334DCD79B5BE6Y)
