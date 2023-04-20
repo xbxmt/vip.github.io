@@ -1,6 +1,8 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 <br>
 <br>
+* [赵晓：他们走了](https://www.asuswebstorage.com/navigate/a/#/s/F15FF67261544A16AB25EBCD5CF285B2Y) 　　　* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/17A3AA54CD444C9FB031762D3632BF01Y)
+------------------------------------------------------
 * [赵晓：批判性思维](https://www.asuswebstorage.com/navigate/a/#/s/488F1C79B4CC4BA89BB1E12F9CC5187AY) 　　　* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/477473B3F245475DBA6C0BC90EB485ECY)
 ------------------------------------------------------
 * [赵晓：孔乙己与迦太基](https://www.asuswebstorage.com/navigate/a/#/s/EBFF882AE6504D2C95B4D1DBDEBEAA38Y) 　　　* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/C59775B2DC0E4E5DA1B9CE4A2EFB01D9Y)
