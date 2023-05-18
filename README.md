@@ -1,6 +1,8 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 <br>
 <br>
+* [赵晓：鸦片战争-中美贸易战](https://www.asuswebstorage.com/navigate/a/#/s/C6F1B4A4CBCF46799D3A4E5D6B47C2C8Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/8F8F5874BD1E4BC79120C82C2C50522CY)
+------------------------------------------------------
 * [赵晓：“匕首”导弹-帝国与文明](https://www.asuswebstorage.com/navigate/a/#/s/36AD2A72414B4D8E9AF13C51E618BB6EY)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/818989CB2869443BB18B14E16642EFE7Y)
 ------------------------------------------------------
 * [赵晓：五四-烧烤](https://www.asuswebstorage.com/navigate/a/#/s/0A7B65D67F1C4BB9BB78C62D06181586Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/2636DC8630DF4EAFA570F707746E6D14Y)
