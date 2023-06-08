@@ -1,6 +1,8 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 <br>
 <br>
+* [赵晓：水稻上山？](https://www.asuswebstorage.com/navigate/a/#/s/7E651CF2CA3149A48C8168F5BDDE26D8Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/F36AA64DA4D043EBAA1B702C9CF1D5E6Y)
+------------------------------------------------------
 * [赵晓：空心病-巨婴-孩子](https://www.asuswebstorage.com/navigate/a/#/s/68A217A0111A4B0890ACA61E0B741855Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/8503D25973BA49538C34A66F8F3E127BY)
 ------------------------------------------------------
 * [赵晓：思想市场与东西两会](https://www.asuswebstorage.com/navigate/a/#/s/0F7B9808C1044DFF96096E6B239FBD5BY)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/565F77ABF8B84D689DD0922E0D99E1A3Y)
