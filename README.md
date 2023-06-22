@@ -1,6 +1,8 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 <br>
 <br>
+* [赵晓：重新审视自己的活法](https://www.asuswebstorage.com/navigate/a/#/s/5A5BEFFE33EF426F8E38323B79D89DB4Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/5B995CC04FEA40E78110D0A50F9A82C7Y)
+------------------------------------------------------
 * [赵晓：上帝之城与山上之城](https://www.asuswebstorage.com/navigate/a/#/s/D76C210571FF4D4DABC88A330E53F49DY)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/8D23012ACDAB433BB8D8F59722ED28E1Y)
 ------------------------------------------------------
 * [赵晓：水稻上山？](https://www.asuswebstorage.com/navigate/a/#/s/7E651CF2CA3149A48C8168F5BDDE26D8Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/F36AA64DA4D043EBAA1B702C9CF1D5E6Y)
