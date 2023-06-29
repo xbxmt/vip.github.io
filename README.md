@@ -1,6 +1,8 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 <br>
 <br>
+* [赵晓：瓦格纳“兵变”](https://www.asuswebstorage.com/navigate/a/#/s/FC581E2B05B94756B97047381FFE3564Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/F856A70EEDE340F38F0E5F6456215385Y)
+------------------------------------------------------
 * [赵晓：重新审视自己的活法](https://www.asuswebstorage.com/navigate/a/#/s/5A5BEFFE33EF426F8E38323B79D89DB4Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/5B995CC04FEA40E78110D0A50F9A82C7Y)
 ------------------------------------------------------
 * [赵晓：上帝之城与山上之城](https://www.asuswebstorage.com/navigate/a/#/s/D76C210571FF4D4DABC88A330E53F49DY)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/8D23012ACDAB433BB8D8F59722ED28E1Y)
