@@ -1,6 +1,8 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 <br>
 <br>
+* [赵晓：人民币的风险](https://www.asuswebstorage.com/navigate/a/#/s/F4B5DAA9046B40EFAB5EFC516FCDF742Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/064E152F554048F3992F5594A18DFF30Y)
+------------------------------------------------------
 * [赵晓：经济警示录--死亡螺旋](https://www.asuswebstorage.com/navigate/a/#/s/076DE54180E4463FB7507A723E7E60E5Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/4D8437EDF5844667A1CC60041BA4C055Y)
 ------------------------------------------------------
 * [赵晓：瓦格纳“兵变”](https://www.asuswebstorage.com/navigate/a/#/s/FC581E2B05B94756B97047381FFE3564Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/F856A70EEDE340F38F0E5F6456215385Y)
