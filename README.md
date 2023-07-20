@@ -1,6 +1,8 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 <br>
 <br>
+* [赵晓：米兰昆德拉-生命的轻与重](https://www.asuswebstorage.com/navigate/a/#/s/994CEAC5D1CC437FA34364A5C4080F38Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/C7EF75161BBB466B8838674266A65A12Y)
+------------------------------------------------------
 * [赵晓：人民币的风险](https://www.asuswebstorage.com/navigate/a/#/s/F4B5DAA9046B40EFAB5EFC516FCDF742Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/064E152F554048F3992F5594A18DFF30Y)
 ------------------------------------------------------
 * [赵晓：经济警示录--死亡螺旋](https://www.asuswebstorage.com/navigate/a/#/s/076DE54180E4463FB7507A723E7E60E5Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/4D8437EDF5844667A1CC60041BA4C055Y)
