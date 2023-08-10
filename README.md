@@ -1,6 +1,8 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 <br>
 <br>
+* [赵晓：教会-商会-议会-如何改变世界！](https://www.asuswebstorage.com/navigate/a/#/s/2B3C9621511E4C1EBE4CFE59303C4402Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/EB21F7C942344589AEAD79CFCD7419CFY)
+------------------------------------------------------
 * [赵晓：教会-商会-议会-今天的世界仍是“叢林”吗？](https://www.asuswebstorage.com/navigate/a/#/s/552035171EC24946AA95BDC0BF3A706CY)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/91B88A772975401BAA8CE50E3AD7102BY)
 ------------------------------------------------------
 * [赵晓：中国经济的“解”](https://www.asuswebstorage.com/navigate/a/#/s/322612795D944FFEABDEF5420D46D552Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/CAB4047A793A4B14B820D39B4BA7EBE5Y)
