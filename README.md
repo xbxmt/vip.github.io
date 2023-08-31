@@ -1,6 +1,8 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 <br>
 <br>
+* [赵晓：核废水与认知](https://www.asuswebstorage.com/navigate/a/#/s/AAE8338B6DEE44EEAD8532CE014AE0ABY)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/CF5BE720E0E74D2997BF9CDA43CD016FY)
+------------------------------------------------------
 * [赵晓：偽善之惡](https://www.asuswebstorage.com/navigate/a/#/s/9D7F2776CAC940BB94ABDAD0C324EA80Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/126E8FB185E3420D8C4D8563CDA0C340Y)
 ------------------------------------------------------
 * [赵晓：增长之術與增长之道](https://www.asuswebstorage.com/navigate/a/#/s/4581C11B38694D4C9EFA043CC2B3DAE7Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/68577857C6FD45BCA8E80058BB610838Y)
