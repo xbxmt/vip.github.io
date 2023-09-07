@@ -1,6 +1,8 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 <br>
 <br>
+* [赵晓：经济危机中的危与机](https://www.asuswebstorage.com/navigate/a/#/s/FDCC37C568F24F8690E6C51A107B7C5BY)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/67ADDA7E499B4000B4BEA1C95A24B8C9Y)
+------------------------------------------------------
 * [赵晓：核废水与认知](https://www.asuswebstorage.com/navigate/a/#/s/AAE8338B6DEE44EEAD8532CE014AE0ABY)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/CF5BE720E0E74D2997BF9CDA43CD016FY)
 ------------------------------------------------------
 * [赵晓：偽善之惡](https://www.asuswebstorage.com/navigate/a/#/s/9D7F2776CAC940BB94ABDAD0C324EA80Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/126E8FB185E3420D8C4D8563CDA0C340Y)
