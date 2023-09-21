@@ -1,6 +1,8 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 <br>
 <br>
+* [赵晓：人民幣之“貨幣戰争”](https://www.asuswebstorage.com/navigate/a/#/s/7E8B523CD9074EA9A5552DB632543DCEY)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/5506E949694149EFB5C33F7F78A6D057Y)
+------------------------------------------------------
 * [赵晓：心灵投资—向善向恶的选择](https://www.asuswebstorage.com/navigate/a/#/s/C2ADFC337DE548D698771500C8893BC5Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/F721A53D232044ADB782A7A4C91A5DE7Y)
 ------------------------------------------------------
 * [赵晓：经济危机中的危与机](https://www.asuswebstorage.com/navigate/a/#/s/FDCC37C568F24F8690E6C51A107B7C5BY)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/67ADDA7E499B4000B4BEA1C95A24B8C9Y)
