@@ -1,6 +1,8 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 <br>
 <br>
+* [赵晓：最新中东战争](https://www.asuswebstorage.com/navigate/a/#/s/A8E9F950596E48FD827439AA67483469Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/D4FEF582406A4FBB81357885CB833E4EY)
+------------------------------------------------------
 * [赵晓：恒大之殇](https://www.asuswebstorage.com/navigate/a/#/s/90756E521C2D40E19E1702C2FBAC69E7Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/5A2AD253EE9D41969EA729C423106F48Y)
 ------------------------------------------------------
 * [赵晓：生命经济学之人生折叠智慧](https://www.asuswebstorage.com/navigate/a/#/s/A0903CE9C1374A2E881141F07ACD7926Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/31E00053B0544620A384197AF4762457Y)
