@@ -1,6 +1,8 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 <br>
 <br>
+* [赵晓：为什么是以色列？](https://www.asuswebstorage.com/navigate/a/#/s/18CAFF8D673C473A896D1EAF89F5AA4AY)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/0DF96572B5724EE18EE11F770D368B5FY)
+------------------------------------------------------
 * [赵晓：最新中东战争](https://www.asuswebstorage.com/navigate/a/#/s/A8E9F950596E48FD827439AA67483469Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/D4FEF582406A4FBB81357885CB833E4EY)
 ------------------------------------------------------
 * [赵晓：恒大之殇](https://www.asuswebstorage.com/navigate/a/#/s/90756E521C2D40E19E1702C2FBAC69E7Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/5A2AD253EE9D41969EA729C423106F48Y)
