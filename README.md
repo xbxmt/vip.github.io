@@ -1,6 +1,8 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 <br>
 <br>
+* [赵晓：众长•中堂——生死太平洋](https://www.asuswebstorage.com/navigate/a/#/s/78836DAA58AA49A1B52B29229677022CY)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/16AC52DE527641B99E2BA7FCADB7B62BY)
+------------------------------------------------------
 * [赵晓：战争与和平](https://www.asuswebstorage.com/navigate/a/#/s/7CDFB1E9A3634685B8CAA663CD1CDEB7Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/356AE540C3EA4777A1F95E80921D368AY)
 ------------------------------------------------------
 * [赵晓：为什么是以色列？](https://www.asuswebstorage.com/navigate/a/#/s/18CAFF8D673C473A896D1EAF89F5AA4AY)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/0DF96572B5724EE18EE11F770D368B5FY)
