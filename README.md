@@ -1,6 +1,8 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 <br>
 <br>
+* [奥派总统1号](https://www.asuswebstorage.com/navigate/a/#/s/DE4DFAA7D7874A8CA1575C5AA33FA47CY)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/27005D20260442428091F4F5396858D7Y)
+------------------------------------------------------
 * [中美经济观察与最新研判](https://www.asuswebstorage.com/navigate/a/#/s/1779DEB489374BD1AEFE9C9E05852745Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/30191BAA4CAD413FAA8E28BDB5E192C9Y)
 ------------------------------------------------------
 * [也谈保守主义七大核心原则](https://www.asuswebstorage.com/navigate/a/#/s/0FD1E5686D3E42C9B3D48057FC37B15CY)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/98006AC94F074DEA974944EAFE0DEB48Y)
