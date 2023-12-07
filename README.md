@@ -1,6 +1,8 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 <br>
 <br>
+* [启蒙运动与理性主义：狂飙突进300年的反思](https://www.asuswebstorage.com/navigate/a/#/s/5023D408297B4322B197A3254EEAAA70Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/1A096F5200D4436894C138057411B1E1Y)
+------------------------------------------------------
 * [奥派总统1号](https://www.asuswebstorage.com/navigate/a/#/s/DE4DFAA7D7874A8CA1575C5AA33FA47CY)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/27005D20260442428091F4F5396858D7Y)
 ------------------------------------------------------
 * [中美经济观察与最新研判](https://www.asuswebstorage.com/navigate/a/#/s/1779DEB489374BD1AEFE9C9E05852745Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/30191BAA4CAD413FAA8E28BDB5E192C9Y)
