@@ -1,6 +1,8 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 <br>
 <br>
+* [同学沙龙：从岁首到年终](https://www.asuswebstorage.com/navigate/a/#/s/AE48F4D0CD834A3F9408BCF19A7F1602Y)<br>
+------------------------------------------------------
 * [歲末盘点](https://www.asuswebstorage.com/navigate/a/#/s/2D481ED5816D425AABF1A32826AD5719Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/A71703AE8C1442C6B4392393E26DA667Y)
 ------------------------------------------------------
 * [生命经济学之男人必看与评析](https://www.asuswebstorage.com/navigate/a/#/s/5CD66828D89444C89D56B86D1CDAACB1Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/5953D29C4CE34931B1F5B7A901FAA754Y)
