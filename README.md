@@ -1,6 +1,8 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 <br>
 <br>
+* [第一滴脂油](https://www.asuswebstorage.com/navigate/a/#/s/9663F48BC2894D9F9EA978AF088CC44CY)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/BB47740ADA85440EA3C310CE8B615D7AY)
+------------------------------------------------------
 * [同学沙龙：从岁首到年终](https://www.asuswebstorage.com/navigate/a/#/s/AE48F4D0CD834A3F9408BCF19A7F1602Y)<br>
 ------------------------------------------------------
 * [歲末盘点](https://www.asuswebstorage.com/navigate/a/#/s/2D481ED5816D425AABF1A32826AD5719Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/A71703AE8C1442C6B4392393E26DA667Y)
