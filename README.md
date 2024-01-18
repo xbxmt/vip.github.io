@@ -1,6 +1,8 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 <br>
 <br>
+* [赵晓：支票•钞票•选票 ](https://www.asuswebstorage.com/navigate/a/#/s/F95D184685C34A4F99002A30C5FC223BY)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/A7F12CDF9019461FB757C852A59890FEY)
+------------------------------------------------------
 * [“冲突的经济学”智慧](https://www.asuswebstorage.com/navigate/a/#/s/24937D1857B6456199983C1402A37959Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/4CE0E500BE1C4080B824CEFA8D71085AY)
 ------------------------------------------------------
 * [第一滴脂油](https://www.asuswebstorage.com/navigate/a/#/s/9663F48BC2894D9F9EA978AF088CC44CY)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/BB47740ADA85440EA3C310CE8B615D7AY)
