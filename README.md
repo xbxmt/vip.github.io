@@ -1,7 +1,9 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 <br>
 <br>
-* [支票•钞票•选票 ](https://www.asuswebstorage.com/navigate/a/#/s/F95D184685C34A4F99002A30C5FC223BY)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/A7F12CDF9019461FB757C852A59890FEY)
+* [独立人格](https://www.asuswebstorage.com/navigate/a/#/s/87B430037B6F4A6EA97AF54583B295F2Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/95C11F4818034863A948A836E8FDAEF8Y)
+------------------------------------------------------
+* [支票•钞票•选票](https://www.asuswebstorage.com/navigate/a/#/s/F95D184685C34A4F99002A30C5FC223BY)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/A7F12CDF9019461FB757C852A59890FEY)
 ------------------------------------------------------
 * [“冲突的经济学”智慧](https://www.asuswebstorage.com/navigate/a/#/s/24937D1857B6456199983C1402A37959Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/4CE0E500BE1C4080B824CEFA8D71085AY)
 ------------------------------------------------------
