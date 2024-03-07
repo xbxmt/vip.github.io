@@ -1,6 +1,8 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 <br>
 <br>
+* [奥派：不一样的经济学](https://www.asuswebstorage.com/navigate/a/#/s/18D3B1D4ED1A48BA86F0312642EEB61BY)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/1F630165D9984DA2AC3AA7A15FC290C7Y)
+------------------------------------------------------
 * [独立人格](https://www.asuswebstorage.com/navigate/a/#/s/87B430037B6F4A6EA97AF54583B295F2Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/95C11F4818034863A948A836E8FDAEF8Y)
 ------------------------------------------------------
 * [支票•钞票•选票](https://www.asuswebstorage.com/navigate/a/#/s/F95D184685C34A4F99002A30C5FC223BY)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/A7F12CDF9019461FB757C852A59890FEY)
