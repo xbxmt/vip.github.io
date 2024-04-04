@@ -1,6 +1,8 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 <br>
 <br>
+* [人生几何：那些感动我的生命](https://www.asuswebstorage.com/navigate/a/#/s/9E097C257FF444DA94A9F404CA6E72B9Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/C85CE4AAE1D94DE6A655753B58FC5B25Y)
+------------------------------------------------------
 * [币如潮水2：300万亿的货币量](https://www.asuswebstorage.com/navigate/a/#/s/251ABD397F7D47909916FFB8F36515EAY)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/88FC5C2B09D14C12B2A64882C41070BCY)
 ------------------------------------------------------
 * [中国能否跨入“高收入国家”的大论战](https://www.asuswebstorage.com/navigate/a/#/s/794FB623954D4C4EAFAB221817D90368Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/77E1EE71F350488C8FEAB9FF5CB55088Y)
