@@ -1,6 +1,8 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 <br>
 <br>
+* [聆听智者巴菲特](https://www.asuswebstorage.com/navigate/a/#/s/4D177D0011774EE2A9D764613D640F66Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/00AE923CA2FE403F95D880AE55E25B02Y)
+------------------------------------------------------
 * [布林肯身后的和平之门](https://www.asuswebstorage.com/navigate/a/#/s/732015809F0D42F5BE768984E086195BY)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/0C078104F39B4603851107E3382C6108Y)
 ------------------------------------------------------
 * [本我、自我、超我——从“无性婚姻”谈起](https://www.asuswebstorage.com/navigate/a/#/s/1CA2184B9C6841648F189E424C3FCE53Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/7D298196F8C646CE8D3857FC5580E879Y)
