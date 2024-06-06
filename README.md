@@ -1,6 +1,8 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 <br>
 <br>
+* [在“历史大黑夜”中唤醒天明](https://www.asuswebstorage.com/navigate/a/#/s/89585629AB1947308C531241E8CE39E5Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/A8D9610E7B284776BBF814B180F98AFCY)
+------------------------------------------------------
 * [“国家愚蠢”的炼成](https://www.asuswebstorage.com/navigate/a/#/s/34B2B4041D1D47B0BFC0A5114F717AFFY)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/E71103CE320D4544A30383698035C84EY)
 ------------------------------------------------------
 * [大路朝天：近期政经观察](https://www.asuswebstorage.com/navigate/a/#/s/D10EB5D408FB4183BC6A13DE1E94FCF5Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/1F6A5AD0BBD74517A3A42498E06D796DY)
