@@ -1,6 +1,8 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 <br>
 <br>
+* [出黑暗入光明之东洋启示录](https://www.asuswebstorage.com/navigate/a/#/s/66811FE0DF094BE08769FE51E134C8E4Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/03AB3008E5C445FFBBD1CCFB9EF11213Y)
+------------------------------------------------------
 * [在“历史大黑夜”中唤醒天明](https://www.asuswebstorage.com/navigate/a/#/s/89585629AB1947308C531241E8CE39E5Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/A8D9610E7B284776BBF814B180F98AFCY)
 ------------------------------------------------------
 * [“国家愚蠢”的炼成](https://www.asuswebstorage.com/navigate/a/#/s/34B2B4041D1D47B0BFC0A5114F717AFFY)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/E71103CE320D4544A30383698035C84EY)
