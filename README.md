@@ -1,6 +1,8 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 <br>
 <br>
+* [北欧海盗与文明古国](https://www.asuswebstorage.com/navigate/a/#/s/71DDBC39A0B643D3AFC32A8F0D670E59Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/4D0EDBE345F04ECEBF3B3AB9DC3716F0Y)
+------------------------------------------------------
 * [2024年中经济盘点](https://www.asuswebstorage.com/navigate/a/#/s/5CBDA20434E04A4F8EC20C0C9165B3C0Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/04D3B034E6044037B4A3B8CAB3F4B296Y)
 ------------------------------------------------------
 * [“历史的垃圾时间”](https://www.asuswebstorage.com/navigate/a/#/s/43B3AEC67C3B48BDAF2D4603BBD7584AY)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/0343FD19B8FA4150AA2D34537E4993D8Y)
