@@ -2,6 +2,9 @@
 <br>
 <br>
 
+* [当下中国经济：政策台风、效应与应对](https://www.asuswebstorage.com/navigate/a/#/s/DACAE0B179D34D0A8FCAAAE82A8FB5CDY)
+* [A股的投资价值分析](https://www.asuswebstorage.com/navigate/a/#/s/D3C5659750AF459C82D7CFF9540103D2Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/BE1B5B5A05F54DCEB3F630FB075AC931Y)
+------------------------------------------------------
 * [有十字架的变革之韩国案例](https://www.asuswebstorage.com/navigate/a/#/s/A3B6BABC6AA34C23889739E603B52E93Y)
 * [从洛桑首尔大会反思韩国教会与神学的挑战与隐忧](https://www.asuswebstorage.com/navigate/a/#/s/D4304F7A9242482D8139C1656411388AY)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/A2CF6925600243698771FE570BB3B929Y)
 ------------------------------------------------------
