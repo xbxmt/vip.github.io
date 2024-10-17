@@ -1,14 +1,13 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 <br>
 <br>
-
+* [国富论新探：2024经济学诺奖的智慧](https://www.asuswebstorage.com/navigate/a/#/s/F7504A34A22F4E92A544E51108E224D3Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/6A9D266888A4471F89B7C9F86AB87B52Y)
+------------------------------------------------------
 * [当下中国经济：政策台风、效应与应对](https://www.asuswebstorage.com/navigate/a/#/s/DACAE0B179D34D0A8FCAAAE82A8FB5CDY)
 * [A股的投资价值分析](https://www.asuswebstorage.com/navigate/a/#/s/D3C5659750AF459C82D7CFF9540103D2Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/BE1B5B5A05F54DCEB3F630FB075AC931Y)
 ------------------------------------------------------
 * [有十字架的变革之韩国案例](https://www.asuswebstorage.com/navigate/a/#/s/A3B6BABC6AA34C23889739E603B52E93Y)
 * [从洛桑首尔大会反思韩国教会与神学的挑战与隐忧](https://www.asuswebstorage.com/navigate/a/#/s/D4304F7A9242482D8139C1656411388AY)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/A2CF6925600243698771FE570BB3B929Y)
-------------------------------------------------------
-* [谈谈美国大选](https://www.asuswebstorage.com/navigate/a/#/s/B19CE087C42B4E888CA33A74F5C02654Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/773576C468C44575B895C2D95A6EC30FY)
 ------------------------------------------------------
 * [大话足球](https://www.asuswebstorage.com/navigate/a/#/s/37E70F030B104D6D97ADAC9C2D311EEEY)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/1D2A766D0827409EAF194AD94B2D6EFDY)
 ------------------------------------------------------
