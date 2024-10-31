@@ -1,6 +1,8 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 <br>
 <br>
+* [美国大选中的大是大非](https://www.asuswebstorage.com/navigate/a/#/s/ED208AE358074A59946797E136ACAE55Y)
+------------------------------------------------------
 * [2024经济学诺奖对中国的启示录](https://www.asuswebstorage.com/navigate/a/#/s/FB1FB9D26B0F47D08F7A440162551B7BY)
 ------------------------------------------------------
 * [国富论新探：2024经济学诺奖的智慧](https://www.asuswebstorage.com/navigate/a/#/s/F7504A34A22F4E92A544E51108E224D3Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/6A9D266888A4471F89B7C9F86AB87B52Y)
