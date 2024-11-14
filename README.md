@@ -3,7 +3,7 @@
 <br>
 * [美国大选与中国反思——从“制度基因”到未来道路（下）](https://www.asuswebstorage.com/navigate/a/#/s/11CDFA8ED578494CB3682D76EF83D266Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/E1B320F44B7B4B94997D976DAEEFE559Y)
 ------------------------------------------------------
-* [美国大选与中国反思——从“制度基因”到未来道路](https://www.asuswebstorage.com/navigate/a/#/s/20D869A1C9AD49ADBE43D176C452785EY)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/B54FDDE7FD644D528B1B02D2395B0E42Y)
+* [美国大选与中国反思——从“制度基因”到未来道路（上）](https://www.asuswebstorage.com/navigate/a/#/s/20D869A1C9AD49ADBE43D176C452785EY)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/B54FDDE7FD644D528B1B02D2395B0E42Y)
 ------------------------------------------------------
 * [美国大选中的大是大非](https://www.asuswebstorage.com/navigate/a/#/s/ED208AE358074A59946797E136ACAE55Y)
 ------------------------------------------------------
