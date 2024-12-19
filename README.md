@@ -1,6 +1,8 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 <br>
 <br>
+* [2025：川普回归之中美经贸展望](https://www.asuswebstorage.com/navigate/a/#/s/D5CDFB30BEF841C88BF46400D43B534AY)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/CCF7E1B38A43410B9FF8516D6C3C62B5Y)
+------------------------------------------------------
 * [2025：川普回归之中美经贸展望](https://www.asuswebstorage.com/navigate/a/#/s/7D625A63A1DD458495CE907CFE95C9E8Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/89DCF77C405F4273A16864D0E3C0EF03Y)
 ------------------------------------------------------
 * [万斯：川普三剑客的悲歌与赞美](https://www.asuswebstorage.com/navigate/a/#/s/531E1177B7B04530AC001CCA5B523E09Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/010F453556504E3F835AECEC0A0A2FF0Y)
