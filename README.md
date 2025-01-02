@@ -1,6 +1,8 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 <br>
 <br>
+* [义者千秋——纪念吉米·卡特](https://www.asuswebstorage.com/navigate/a/#/s/E5D5FA4A8880442EB2B69908A5B029A9Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/BE6AEFFE070C4818B51C4F0268C84685Y)
+------------------------------------------------------
 * [这一年……危机中的智慧与转机](https://www.asuswebstorage.com/navigate/a/#/s/E30CF5C103A543C98B691A93CF2CC152Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/D1C03466EDA246F7B35CCFE42AD23C2DY)
 ------------------------------------------------------
 * [平行宇宙-人类的突破与人性的困境](https://www.asuswebstorage.com/navigate/a/#/s/D5CDFB30BEF841C88BF46400D43B534AY)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/CCF7E1B38A43410B9FF8516D6C3C62B5Y)
