@@ -1,6 +1,8 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 <br>
 <br>
+* [CPTPP的入场券——中国能搭上这趟全球化快车吗？](https://www.asuswebstorage.com/navigate/a/#/s/7E83D5BD9ED14CAA8ECFAD7B8097286DY)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/1407DA178C2D459F9F2DA65038ED40B0Y)
+------------------------------------------------------
 * [义者千秋——纪念吉米·卡特](https://www.asuswebstorage.com/navigate/a/#/s/E5D5FA4A8880442EB2B69908A5B029A9Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/BE6AEFFE070C4818B51C4F0268C84685Y)
 ------------------------------------------------------
 * [这一年……危机中的智慧与转机](https://www.asuswebstorage.com/navigate/a/#/s/E30CF5C103A543C98B691A93CF2CC152Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/D1C03466EDA246F7B35CCFE42AD23C2DY)
