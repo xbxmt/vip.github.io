@@ -1,6 +1,8 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 <br>
 <br>
+* [缅甸诈骗](https://www.asuswebstorage.com/navigate/a/#/s/6A5094C9C44F43DB987C044AB360C533Y)
+------------------------------------------------------
 * [CPTPP的入场券——中国能搭上这趟全球化快车吗？](https://www.asuswebstorage.com/navigate/a/#/s/7E83D5BD9ED14CAA8ECFAD7B8097286DY)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/1407DA178C2D459F9F2DA65038ED40B0Y)
 ------------------------------------------------------
 * [义者千秋——纪念吉米·卡特](https://www.asuswebstorage.com/navigate/a/#/s/E5D5FA4A8880442EB2B69908A5B029A9Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/BE6AEFFE070C4818B51C4F0268C84685Y)
