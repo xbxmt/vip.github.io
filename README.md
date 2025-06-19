@@ -1,6 +1,8 @@
 为达到观影效果，建议将网址复制到浏览器播放。
 <br>
 <br>
+* [现实中国的“三重断裂”：从电力、楼市到人口的数据解读](https://www.asuswebstorage.com/navigate/a/#/s/B63C6D3B6557486D9A0753CCA40CC084Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/2AE17F49D7C449EAAF3FCFFF2C78E11BY)
+------------------------------------------------------
 * [稳定币时代的智慧应对：工具、挑战与信仰指南](https://www.asuswebstorage.com/navigate/a/#/s/2999B2B263BB45348BF4B99782D11E3FY)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/25740E1649F14F3ABFC7D190833A9330Y)
 ------------------------------------------------------
 * [川普风暴之“中美脱钩”](https://www.asuswebstorage.com/navigate/a/#/s/4BAAA932364345EEBFF8E3038FDD5402Y)<br>* [课后互动](https://www.asuswebstorage.com/navigate/a/#/s/4B6879E0E37A455F845413BEFE4F8334Y)
